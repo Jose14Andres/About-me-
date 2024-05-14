@@ -1,0 +1,7 @@
+- 👋 Hello, I'm @Jose14Andres
+- 👀 I am interested in Cybersecurity and Hacking
+- 🌱 I am currently learning Systems Engineering
+- 💞️ I am looking to collaborate on ethical hacking projects
+- 📫 How to contact me...
+- 😄 Pronouns: Lily_Skies142
+- ⚡ Fun fact: I am a ghost in any database
